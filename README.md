@@ -39,7 +39,7 @@ Here are some ideas to get you started:
 
 <!-- - 📄 **Resume** [Click Me](https://docs.google.com/document/d/1xS7nQT9C6Q5ef9jHeJZuqxaVx7tnJDBMv5_UH2ow4M4/edit?usp=sharing) -->
 
-- ⚡ Fun fact **I think I'm Adventurous.**
+- ⚡ Fun fact **I think I'm Determinate.**
 
 
 <!-- BLOG-POST-LIST:START -->
